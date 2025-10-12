@@ -1,4 +1,4 @@
-👋 Hey, I'm Rayz!
+👋 Hey, I'm Itsumi!
 
 💻 Computer Science Student | 🎯 Specializing in AI/ML<br/>
 🤖 Machine Learning Enthusiast | 🛡 Cybersecurity Explorer<br/>
